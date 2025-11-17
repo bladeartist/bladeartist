@@ -1,4 +1,5 @@
-## Hi there 👋
+## hi <3 please read and sign my strawpage!
+https://bladeartist.straw.page
 
 <!--
 **bladeartist/bladeartist** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
